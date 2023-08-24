@@ -1,5 +1,3 @@
-What to Expect During the Interview Process
-===========================================================================================
 
 The interview process can be a nerve-wracking experience, but understanding what to expect can help you prepare and perform your best. In this chapter, we will discuss what to expect during the interview process.
 

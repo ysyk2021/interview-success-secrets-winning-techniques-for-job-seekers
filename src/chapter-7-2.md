@@ -1,5 +1,3 @@
-Techniques for Demonstrating Cultural Fit
-================================================================================
 
 Demonstrating cultural fit is an important part of the interview process. In this chapter, we will discuss techniques for demonstrating cultural fit.
 

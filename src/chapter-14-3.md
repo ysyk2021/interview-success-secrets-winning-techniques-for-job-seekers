@@ -1,5 +1,3 @@
-Cultivating a Winning Mindset, Confidence, and Adaptability
-=====================================================================================================================
 
 Interview preparation is essential for job seekers to succeed in the hiring process. In this chapter, we will discuss how to create an interview preparation plan that cultivates a winning mindset, confidence, and adaptability.
 

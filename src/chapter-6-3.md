@@ -1,5 +1,3 @@
-Communicating Effectively During the Interview
-===============================================================================================
 
 Answering common interview questions is an essential part of the interview process. In this chapter, we will discuss tips for communicating effectively during the interview by answering common interview questions.
 

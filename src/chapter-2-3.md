@@ -1,5 +1,3 @@
-How to Prepare for Each Stage of the Interview Process
-======================================================================================================
 
 Preparing for each stage of the interview process can help you feel more confident and perform your best. In this chapter, we will discuss how to prepare for each stage of the interview process.
 

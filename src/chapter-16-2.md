@@ -1,5 +1,3 @@
-How Technology is Changing the Interview Process
-=========================================================================================================
 
 Technology has revolutionized many aspects of the job search process, including interviewing. In this chapter, we will discuss new trends and technologies in interviewing and how they are changing the interview process.
 

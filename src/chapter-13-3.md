@@ -1,5 +1,3 @@
-Tips for Turning Negative Aspects into Positives
-=====================================================================================================
 
 Answering difficult interview questions can be a challenge, especially when they relate to negative aspects of your work history or experience. In this chapter, we will discuss tips for turning negative aspects into positives and demonstrating your qualifications and value as a candidate.
 

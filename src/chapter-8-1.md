@@ -1,5 +1,3 @@
-Phone and Video Interviews
-=================================================================================
 
 Interviewing is an essential part of the job search process, but it can take on different forms depending on the circumstances. In this chapter, we will discuss how to navigate special interview circumstances such as phone and video interviews.
 

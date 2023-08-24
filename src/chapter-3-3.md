@@ -1,5 +1,3 @@
-Identifying Potential Interview Questions
-==========================================================================================
 
 Researching the company and position you are applying for is a crucial step in preparing for an interview. In this chapter, we will discuss how to research the company and position and identify potential interview questions.
 

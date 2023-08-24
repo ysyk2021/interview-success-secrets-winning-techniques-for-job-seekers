@@ -1,5 +1,3 @@
-Controlling Your Own Nonverbal Cues
-==================================================================================
 
 Nonverbal communication plays a significant role in the interview process, and it's essential for job seekers to master their own nonverbal cues. In this chapter, we will discuss how to control your nonverbal cues to make a positive impression during interviews.
 

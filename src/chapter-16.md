@@ -1,5 +1,3 @@
-Chapter 16: New Trends and Technologies in Interviewing
-=======================================================
 
 The interviewing process is constantly evolving, with new trends and technologies emerging that can impact the way job seekers prepare for and approach interviews. In this chapter, we will discuss emerging trends in interviewing and how technology is changing the interview process.
 

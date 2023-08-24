@@ -1,5 +1,3 @@
-Different Types of Job Interviews
-=================================================================================
 
 The interview process can take many different forms, depending on the company and position. In this chapter, we will discuss the different types of job interviews you may encounter in your job search.
 

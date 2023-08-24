@@ -1,5 +1,3 @@
-Interviews with Successful Job Seekers and Hiring Managers
-===============================================================================================================================================
 
 Interviewing can be a daunting process, but there's no need to navigate it alone. In this chapter, we will share interviews with successful job seekers and hiring managers to provide valuable insights and advice.
 

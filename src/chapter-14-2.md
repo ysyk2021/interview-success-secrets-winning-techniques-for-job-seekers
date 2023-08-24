@@ -1,5 +1,3 @@
-Developing a Personalized Interview Preparation Plan
-==============================================================================================================
 
 Interview preparation is essential for job seekers to succeed in the hiring process. In this chapter, we will discuss how to create a personalized interview preparation plan that works for you.
 

@@ -1,5 +1,3 @@
-Understanding the Salary Negotiation Process
-=========================================================================================
 
 Negotiating salary and benefits is an important step in the job offer process. In this chapter, we will discuss how to understand the salary negotiation process.
 

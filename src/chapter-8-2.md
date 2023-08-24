@@ -1,5 +1,3 @@
-Group Interviews
-=======================================================================
 
 Group interviews can be a challenging and intimidating experience for job seekers, but they are becoming increasingly common in the hiring process. In this chapter, we will discuss how to navigate group interviews and stand out as a candidate.
 

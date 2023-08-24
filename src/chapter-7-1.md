@@ -1,5 +1,3 @@
-Understanding the Company Culture and Values
-===================================================================================
 
 Demonstrating cultural fit is an important part of the interview process. In this chapter, we will discuss how to understand the company culture and values and demonstrate your fit for the position and company.
 

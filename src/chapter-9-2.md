@@ -1,5 +1,3 @@
-Strategies for Staying Top-of-Mind with Hiring Managers
-====================================================================================================
 
 Staying top-of-mind with hiring managers can keep you in consideration for a position and demonstrate your continued interest in the company. In this chapter, we will discuss strategies for staying top-of-mind with hiring managers after an interview.
 

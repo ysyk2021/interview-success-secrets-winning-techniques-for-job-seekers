@@ -1,5 +1,3 @@
-Techniques for Answering Common Interview Questions
-====================================================================================================
 
 Preparing for common interview questions can help you feel more confident and perform your best during the interview. In this chapter, we will discuss techniques for answering common interview questions.
 

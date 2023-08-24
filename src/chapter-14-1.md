@@ -1,5 +1,3 @@
-Identifying Your Strengths and Weaknesses
-===================================================================================================
 
 Identifying your strengths and weaknesses is an important step in creating a personalized interview preparation plan. In this chapter, we will discuss how to identify your strengths and weaknesses and use them to prepare for interviews.
 

@@ -1,5 +1,3 @@
-Chapter 5: Preparing for the Interview
-======================================
 
 Preparing for an interview is essential for job seekers to succeed in the hiring process. In this chapter, we will discuss tips for creating an effective interview preparation plan, techniques for managing interview anxiety, and strategies for building confidence and a winning mindset.
 

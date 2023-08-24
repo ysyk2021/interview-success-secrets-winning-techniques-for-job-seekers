@@ -1,5 +1,3 @@
-Gathering Information about the Company and Its Culture
-========================================================================================================
 
 Researching the company and position is a critical part of preparing for an interview. In this chapter, we will discuss how to gather information about the company and its culture.
 

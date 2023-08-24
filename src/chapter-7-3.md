@@ -1,5 +1,3 @@
-Identifying Potential Cultural Clashes
-=============================================================================
 
 While demonstrating cultural fit is important, it's also important to be aware of potential cultural clashes. In this chapter, we will discuss how to identify potential cultural clashes and address them during the interview process.
 

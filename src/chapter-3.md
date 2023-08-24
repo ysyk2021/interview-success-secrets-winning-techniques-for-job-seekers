@@ -1,5 +1,3 @@
-Chapter 3: Researching the Company and Position
-===============================================
 
 Researching the company and position is an essential step in preparing for a successful interview. In this chapter, we will discuss how to gather information about the company and its culture, understand the job requirements and responsibilities, and identify potential interview questions.
 

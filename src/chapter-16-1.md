@@ -1,5 +1,3 @@
-Emerging Trends in Interviewing
-========================================================================================
 
 The job market is constantly evolving, and with it, the interview process. In this chapter, we will discuss emerging trends in interviewing and how job seekers can prepare for them.
 

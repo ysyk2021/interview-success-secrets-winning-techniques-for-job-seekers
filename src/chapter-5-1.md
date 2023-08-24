@@ -1,5 +1,3 @@
-Tips for Creating an Effective Interview Preparation Plan
-=================================================================================================
 
 Preparing for an interview is essential to increasing your chances of success. However, it can be overwhelming to know where to start and how to approach interview preparation. In this chapter, we will discuss tips for creating an effective interview preparation plan.
 

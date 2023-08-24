@@ -1,5 +1,3 @@
-Chapter 8: Navigating Special Interview Circumstances
-=====================================================
 
 The interview process can take many forms, and job seekers need to be prepared for various circumstances. In this chapter, we will discuss strategies for navigating phone and video interviews, group interviews, and second-round and final interviews.
 

@@ -1,5 +1,3 @@
-Creating a Compelling Elevator Pitch
-=============================================================================
 
 Your personal brand is the impression you make on others and how you differentiate yourself from other candidates. A compelling elevator pitch is an essential tool for communicating your personal brand effectively. In this chapter, we will discuss tips for creating a compelling elevator pitch.
 

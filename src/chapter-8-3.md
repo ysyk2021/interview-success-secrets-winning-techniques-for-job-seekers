@@ -1,5 +1,3 @@
-Second-Round and Final Interviews
-========================================================================================
 
 Navigating second-round and final interviews can be a unique challenge for job seekers. In this chapter, we will discuss strategies for preparing and succeeding in these special interview circumstances.
 

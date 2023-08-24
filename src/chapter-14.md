@@ -1,5 +1,3 @@
-Chapter 14: Creating Your Own Interview Preparation Plan
-========================================================
 
 To succeed in any interview, it is essential to have a well-developed interview preparation plan. In this chapter, we'll explore how to create your own personalized interview preparation plan, including identifying your strengths and weaknesses, developing a plan, and cultivating a winning mindset.
 

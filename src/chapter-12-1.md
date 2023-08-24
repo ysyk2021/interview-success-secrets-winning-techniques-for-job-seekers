@@ -1,5 +1,3 @@
-Using Storytelling to Make Your Answers Compelling
-================================================================================================
 
 Using storytelling techniques in your interview responses can make your answers more compelling and memorable. In this chapter, we will discuss tips for using storytelling to stand out in your interviews.
 

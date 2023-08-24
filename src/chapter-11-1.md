@@ -1,5 +1,3 @@
-Reading and Interpreting Body Language
-=====================================================================================
 
 Nonverbal communication plays an important role in the interview process and can affect how you are perceived by the interviewer. In this chapter, we will discuss tips for reading and interpreting body language.
 
