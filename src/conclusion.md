@@ -1,5 +1,4 @@
 
-
 Interviewing can be a daunting and challenging process, but with the right preparation and techniques, job seekers can increase their chances of success. In this book, we have covered a range of topics related to interview preparation and success, including:
 
 * Understanding the importance of personal branding
