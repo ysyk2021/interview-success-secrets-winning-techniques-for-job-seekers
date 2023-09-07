@@ -8,3 +8,7 @@ In this book, we'll cover topics such as job interview techniques, interview ski
 This book is like having a job search coach at your fingertips, ready to guide you through every aspect of the interview process. By the end of this book, you'll have all the tools and strategies you need to approach any job interview with confidence and win over the hiring manager. So let's get started!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
