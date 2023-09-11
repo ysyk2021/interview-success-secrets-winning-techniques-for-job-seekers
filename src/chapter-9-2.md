@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Staying Top-of-Mind with Hiring Managers
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies to ensure you remain in the thoughts of hiring managers throughout the job application process. Staying top-of-mind can be a game-changer in your quest for interview success.
 

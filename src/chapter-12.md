@@ -1,5 +1,4 @@
-Chapter 12: Advanced Interviewing Techniques
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into advanced interviewing techniques that can help you stand out as a job seeker. We'll explore the power of storytelling, the STAR method for answering behavioral questions, and demonstrating leadership skills and potential.
 

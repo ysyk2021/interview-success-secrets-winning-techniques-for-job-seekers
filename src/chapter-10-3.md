@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Negotiating Benefits and Perks
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Negotiating benefits and perks can significantly impact your overall compensation package and job satisfaction. This chapter explores effective strategies and techniques to help job seekers navigate the negotiation process successfully.
 

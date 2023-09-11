@@ -1,5 +1,4 @@
-Chapter 8: Demonstrating Leadership Skills and Potential
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership skills are highly sought after by employers, even in roles that may not have a formal leadership title. This chapter explores strategies for effectively showcasing your leadership skills and potential during job interviews.
 

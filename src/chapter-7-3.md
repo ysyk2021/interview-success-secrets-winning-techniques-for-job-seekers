@@ -1,5 +1,4 @@
-Chapter 9: Identifying Potential Cultural Clashes
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 While cultural fit is important, it's equally essential to recognize potential cultural clashes during the job interview process. This chapter explores techniques and strategies for identifying red flags that may indicate a misalignment between your values and the company's culture.
 

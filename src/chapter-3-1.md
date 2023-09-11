@@ -1,5 +1,4 @@
-Chapter 1: Gathering Information About the Company and Its Culture
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Before you step into an interview, it's essential to gather comprehensive information about the company and its culture. This chapter explores valuable strategies and techniques to help job seekers research and understand the organization they are interviewing with.
 

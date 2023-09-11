@@ -1,5 +1,4 @@
-Chapter 7: Understanding the Salary Negotiation Process
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Salary negotiation is a critical step in securing a job offer that aligns with your financial goals and the value you bring to the organization. In this chapter, we will explore the intricacies of the salary negotiation process and provide you with strategies for navigating it successfully.
 

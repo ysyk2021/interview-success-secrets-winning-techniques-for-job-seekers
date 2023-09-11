@@ -1,5 +1,4 @@
-Chapter 9: Cultivating a Winning Mindset, Confidence, and Adaptability
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll explore the critical importance of cultivating a winning mindset, fostering confidence, and nurturing adaptability as you navigate the challenging terrain of job interviews and career advancement.
 

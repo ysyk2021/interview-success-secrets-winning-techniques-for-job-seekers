@@ -1,5 +1,4 @@
-Chapter 8: What to Do If You Don't Get the Job
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Facing rejection in the job search process can be disheartening, but it's a common experience for many job seekers. In this chapter, we will discuss essential strategies and steps to take if you don't get the job you applied for.
 

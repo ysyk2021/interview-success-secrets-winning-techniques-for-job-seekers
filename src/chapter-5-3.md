@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Building Confidence and a Winning Mindset
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Confidence and a positive mindset are invaluable assets during the job interview process. This chapter explores various strategies and techniques to help job seekers boost their confidence and cultivate a winning mindset for interview success.
 

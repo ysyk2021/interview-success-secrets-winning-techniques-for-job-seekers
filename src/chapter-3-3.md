@@ -1,5 +1,4 @@
-Chapter 3: Identifying Potential Interview Questions
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Successful interview preparation hinges on anticipating and preparing for the questions you might be asked. This chapter explores strategies for identifying and categorizing potential interview questions to help you confidently navigate your job interviews.
 

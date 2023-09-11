@@ -1,5 +1,4 @@
-Chapter 6: Developing a Personalized Interview Preparation Plan
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the crucial process of creating a personalized interview preparation plan. A well-structured and tailored plan can significantly enhance your chances of interview success.
 

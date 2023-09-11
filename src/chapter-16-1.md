@@ -1,5 +1,4 @@
-Chapter 10: Emerging Trends in Interviewing
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the evolving landscape of job interviews and the emerging trends that job seekers need to be aware of in order to stay competitive and adapt to the changing interview environment.
 

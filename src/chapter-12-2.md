@@ -1,5 +1,4 @@
-Chapter 6: The STAR Method for Answering Behavioral Questions
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Behavioral questions are a common component of job interviews, and mastering the STAR method can help you provide structured and compelling responses. This chapter explores the STAR method and provides strategies for effectively using it to answer behavioral questions.
 

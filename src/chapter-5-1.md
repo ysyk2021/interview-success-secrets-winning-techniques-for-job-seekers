@@ -1,5 +1,4 @@
-Chapter 5: Tips for Creating an Effective Interview Preparation Plan
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the essential strategies and tips for crafting an effective interview preparation plan. Your success in a job interview often hinges on the quality of your preparation. A well-thought-out plan can boost your confidence and greatly improve your chances of impressing potential employers.
 

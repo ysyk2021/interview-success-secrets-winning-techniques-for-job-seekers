@@ -1,5 +1,4 @@
-Chapter 16: Insider Tips and Strategies for Interviewing Success
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll uncover valuable insider tips and strategies that can give you a competitive edge in job interviews. These insights, gathered from experienced interviewers and successful job seekers, can help you navigate the interview process with confidence and finesse.
 

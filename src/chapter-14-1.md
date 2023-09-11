@@ -1,5 +1,4 @@
-Chapter 9: Identifying Your Strengths and Weaknesses
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding your strengths and weaknesses is fundamental to a successful job interview. This chapter explores strategies for identifying and effectively discussing your strengths and weaknesses during the interview process.
 

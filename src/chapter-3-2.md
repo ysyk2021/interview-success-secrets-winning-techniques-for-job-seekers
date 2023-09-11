@@ -1,5 +1,4 @@
-Chapter 2: Understanding the Job Requirements and Responsibilities
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Before you can succeed in an interview, you must have a deep understanding of the job you're applying for. This chapter explores the essential strategies and techniques to help job seekers comprehensively grasp the job requirements and responsibilities.
 

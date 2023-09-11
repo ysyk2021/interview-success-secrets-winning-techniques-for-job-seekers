@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Demonstrating Cultural Fit
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Cultural fit is a crucial aspect of the interview process that often determines whether you'll thrive in a particular workplace. This chapter delves into various techniques and strategies to effectively demonstrate your alignment with a company's culture during interviews.
 

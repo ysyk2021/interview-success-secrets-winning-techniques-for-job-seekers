@@ -1,5 +1,4 @@
-Chapter 6: How to Prepare for Each Stage of the Interview Process
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The interview process typically consists of multiple stages, each designed to assess different aspects of your qualifications and fit for a job. This chapter will guide you through how to prepare effectively for each stage, from the initial application to the final interview rounds.
 

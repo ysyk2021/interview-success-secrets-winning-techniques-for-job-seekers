@@ -1,5 +1,4 @@
-Chapter 2: Identifying Your Unique Value Proposition
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the competitive landscape of job seeking, your unique value proposition (UVP) is the key to setting yourself apart from other candidates. This chapter will guide you through the process of discovering and articulating your unique strengths and qualities that make you a valuable asset to potential employers.
 

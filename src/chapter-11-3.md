@@ -1,5 +1,4 @@
-Chapter 13: Creating a Positive First Impression
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the art of making a lasting and positive first impression during job interviews. Mastering this crucial skill can set the stage for a successful interview and leave a favorable impression on your potential employers.
 

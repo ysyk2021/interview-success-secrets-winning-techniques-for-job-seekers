@@ -1,5 +1,4 @@
-Chapter 4: Understanding the Company Culture and Values
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Company culture and values play a pivotal role in the interview process and your overall job satisfaction. This chapter explores the significance of understanding and aligning with a company's culture and values, as well as strategies to assess them effectively.
 

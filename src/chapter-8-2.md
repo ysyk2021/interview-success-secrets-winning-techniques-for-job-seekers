@@ -1,5 +1,4 @@
-Chapter 15: Group Interviews
-============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the unique challenges and strategies for success in group interviews. Group interviews, often involving multiple candidates or interviewers, require a different approach and set of skills to stand out and secure the job you desire.
 

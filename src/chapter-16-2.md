@@ -1,5 +1,4 @@
-Chapter 5: How Technology is Changing the Interview Process
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced world, technology has revolutionized every aspect of our lives, including the way we approach job interviews. In this chapter, we will explore how technology is reshaping the interview process, offering new opportunities and challenges for job seekers.
 

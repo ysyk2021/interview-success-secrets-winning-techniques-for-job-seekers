@@ -1,5 +1,4 @@
-Chapter 4: Creating a Compelling Elevator Pitch
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the competitive world of job seeking, a compelling elevator pitch can be your secret weapon. This chapter will guide you through the process of crafting an engaging and memorable elevator pitch that will leave a lasting impression on potential employers.
 

@@ -1,5 +1,4 @@
-Chapter 17: Interviews with Successful Job Seekers and Hiring Managers
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide you with a unique perspective by presenting interviews with both successful job seekers who have mastered the art of interviewing and hiring managers who share their insights into what they look for in candidates.
 

@@ -1,5 +1,4 @@
-Chapter 7: Handling Difficult Interview Questions and Situations
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest for interview success, job seekers often encounter challenging questions and situations that can be daunting. This chapter aims to equip you with the skills and strategies needed to navigate these difficulties with confidence and poise.
 
